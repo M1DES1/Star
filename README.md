@@ -1,1 +1,1 @@
-![sdad](https://github.com/M1DES1/Star/assets/141944173/0151d0b5-c119-48c6-aec4-6f88dbe64368)
+![sdad](https://github.com/M1DES1/Star/assets/141944173/8d468e72-2e4d-47a2-9a43-25b08dddcb60)
